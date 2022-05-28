@@ -1,3 +1,5 @@
+![Untitled(1)](https://user-images.githubusercontent.com/96881959/170818520-37fd056e-34dd-4400-b69b-1c8e248542bd.png)
+
 # Shop Info
 
 **What we have for you**
